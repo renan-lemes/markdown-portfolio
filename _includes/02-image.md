@@ -1,1 +1,1 @@
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![Image of Stars](https://acegif.com/wp-content/gifs/starfall-gif-46.gif)
